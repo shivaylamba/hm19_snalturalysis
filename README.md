@@ -9,7 +9,6 @@ Email : sarthakbhutani.work@gmail.com  <br>
 
 #2
 Shivay Lamba  <br>
-Phone number : 9821039471  <br>
 Email : shivaylamba@gmail.com  <br>
 
 #3  <br>
